@@ -1,0 +1,2 @@
+# Smece
+ Nedovrseni rad
